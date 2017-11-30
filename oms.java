@@ -1,1 +1,0 @@
-11ur name sadiq
